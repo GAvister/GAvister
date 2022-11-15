@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GAvister
+- 👀 I’m interested in learning to to code
+- 🌱 I’m currently learning about codng
+- 📫 How to reach me 12movies@gmail.com
+- Would like any tips, help and recommandation for learning/starting to learn how to code
